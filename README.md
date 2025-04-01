@@ -1,0 +1,2 @@
+# Amar-gaming
+Earn money 
